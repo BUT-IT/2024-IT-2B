@@ -2,7 +2,7 @@
 
 
 
-Текущая успеваемость студентов https://docs.google.com/spreadsheets/d/16HbOlwLTtXHshFzxoE8Z-DxeXXCpFjZbOKV8y0lz7KQ/edit?gid=0#gid=0
+Текущая успеваемость студентов [https://docs.google.com/spreadsheets/d/16HbOlwLTtXHshFzxoE8Z-DxeXXCpFjZbOKV8y0lz7KQ/edit?gid=0#gid=0](https://docs.google.com/spreadsheets/d/1AqMknGp9WvDBDmzHvtQfObQHhq128eYJkBauCqLbi_g/edit?gid=1962606952#gid=1962606952)
 
 следуйте строго по данной ИНСТРУКЦИИ и строго соблюдайте порядок действий!
 
